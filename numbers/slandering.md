@@ -34,3 +34,29 @@
 	Moses prayed for Miriam's healing, saying, "Heal her, O God, I beg You" (v. 13). This is a further indication of Moses' meekness. If he had not been meek, he would not have prayed for her but instead would have let her die in her leprosy. 
 	 The people were delayed on the march until Miriam was brought in again (v. 15b). 
 	The principle in the case of Miriam and Aaron is the same with us today. 
+
+# note 
+## background
+many problem, 
+turmoil[ˈtɜːmɔɪl]
+## detail
+### resson
+surface:marriage
+inner:Jealousy,rivalry [ˈraɪvlri]
+### process
+speak against
+meek,on the Face of the Earth
+Intervening  [ˌɪntəˈvi:nɪŋ]
+	Coming Down
+	Vindicating [ˈvɪndɪˌkeɪtɪŋ] :meek,oracle  [ˈɒrəkl],faithful
+	Rebuking [riˈbju:kɪŋ]
+	Punished
+Praying for Miriam's Healing
+### result
+miriam:leprosy
+aaron:beg
+mose:pray for
+all:delayed on the march 
+## lesson
+not allow anything negative to remain hidden within us.
+be alert and aware of any [dʒɜ:rms] that may still be in us
