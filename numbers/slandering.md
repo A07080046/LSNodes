@@ -29,7 +29,7 @@
 	, Miriam was leprous, as white as snow. And Aaron turned towards Miriam, and she was leprous" (v. 10). This was God's governmental dealing.
 #### b. Aaron Begging Moses for Her
 	we should learn from this not to follow an instigator. If we follow such a one, we may eventually have to beg on his behalf.
-	In begging for Miriam, Aaron confessed their folly. 
+	In begging for Miriam, Aaron confessed their folly[ˈfɒli]. 
 ### 6. Moses Praying for Miriam's Healing
 	Moses prayed for Miriam's healing, saying, "Heal her, O God, I beg You" (v. 13). This is a further indication of Moses' meekness. If he had not been meek, he would not have prayed for her but instead would have let her die in her leprosy. 
 	 The people were delayed on the march until Miriam was brought in again (v. 15b). 
@@ -59,4 +59,4 @@ mose:pray for
 all:delayed on the march 
 ## lesson
 not allow anything negative to remain hidden within us.
-be alert and aware of any [dʒɜ:rms] that may still be in us
+be alert and aware of any germs[dʒɜ:rms] that may still be in us
