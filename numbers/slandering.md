@@ -37,32 +37,32 @@
 
 # note 
 ## background
-murmur their misfortune->burn and consume some at the ourskirts of the camp
-mixed multitude lust meat, even israel weep and want to eat meat, remember the food in egypt, have no appetite->many quails,stuck with severe \[sɪˈvɪə(r)\] plague \[pleɪɡ\]
-mose burden too heavy ->elders,assistants
-many problem, 
-turmoil\[ˈtɜːmɔɪl\]chaos
+<br />murmur their misfortune->burn and consume some at the ourskirts of the camp
+<br />mixed multitude lust meat, even israel weep and want to eat meat, remember the food in egypt, have no appetite->many quails,stuck with severe \[sɪˈvɪə(r)\] plague \[pleɪɡ\]
+<br />mose burden too heavy ->elders,assistants
+<br />many problem, 
+<br />turmoil\[ˈtɜːmɔɪl\]chaos
 ## detail
 ### resson
 surface:marriage
 inner:Jealousy,rivalry \[ˈraɪvlri\]
 ### process
-speak against
-meek,on the Face of the Earth
-Intervening  \[ˌɪntəˈvi:nɪŋ\]
-	Coming Down
-	stand
-	Vindicating [ˈvɪndɪˌkeɪtɪŋ] :meek,oracle speak face to face, [ˈɒrəkl],faithful in house
-	Rebuking [riˈbju:kɪŋ] no afraid my servant
-	Punished was leprous
-Praying for Miriam's Healing
+<br />speak against
+<br />meek,on the Face of the Earth
+<br />Intervening  \[ˌɪntəˈvi:nɪŋ\]
+<br /> &emsp;&emsp;	Coming Down in pillar
+<br />	&emsp;&emsp; stand at entrance
+<br />	&emsp;&emsp;Vindicating [ˈvɪndɪˌkeɪtɪŋ] :meek,oracle speak face to face, [ˈɒrəkl],faithful in house
+<br />	&emsp;&emsp;Rebuking [riˈbju:kɪŋ] no afraid my servant
+<br />	&emsp;&emsp;Punished was leprous
+<br />Praying for Miriam's Healing
 ### result
-miriam:leprosy
-aaron:beg,folly
-mose:pray for,cry to
-all:delayed on the march 
+<br />miriam:leprosy
+<br />aaron:beg,folly
+<br />mose:pray for,cry to
+<br />all:delayed on the march 
 ## lesson
-should not complain, murmur circumstances, situation
-should not fill lust and appetite\[ˈæpɪtaɪt\]
-should not allow anything negative to remain hidden within us.
-be alert and aware of any germs\[dʒɜ:rms\] that may still be in us
+<br />should not complain, murmur circumstances, situation
+<br />should not fill lust and appetite\[ˈæpɪtaɪt\]
+<br />should not allow anything negative to remain hidden within us.
+<br />be alert and aware of any germs\[dʒɜ:rms\] that may still be in us
