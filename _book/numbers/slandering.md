@@ -1,7 +1,7 @@
 # MESSAGE NINETEEN JOURNEYING(4)
 
 ## C. Slandering
-	(one problem after another, the motive for quite a time)
+	one problem after another, the motive for quite a time
 ### 1. Moses Having Married a Cushite Woman
 	(less message about this)
 ### 2. Miriam and Aaron Speaking against Moses, the Deputy Authority of God
