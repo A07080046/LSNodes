@@ -4,5 +4,8 @@
 . link:numbers/blessing.adoc[blessing]
 . link:numbers/slandering.adoc[slandering]
 . link:numbers/rebellion.adoc[rebellion]
-. link:numbers/mose-successor.adoc[mose's death and his successor]
+. link:numbers/moses-angry.adoc[moses's angry]
+. link:numbers/moses-successor.adoc[moses's death and his successor]
+
+
 
